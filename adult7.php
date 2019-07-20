@@ -1,1 +1,1 @@
-http://iptv.wtf:80/yablmqtt/p55nx9fFX7/16518
+https://dl.dropboxusercontent.com/s/scgnztvsulhrrk9/140747456300c03.mp4?dl=0
